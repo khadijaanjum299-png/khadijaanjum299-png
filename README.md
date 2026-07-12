@@ -253,7 +253,7 @@ A modern e-commerce platform featuring AI-powered product recommendations, secur
 
 ### Cyber Security & Digital Forensics Student
 
-**University Program** | *2024 — Present*
+Lahore Garrison University | *2024 — Present*
 
 </div>
 
